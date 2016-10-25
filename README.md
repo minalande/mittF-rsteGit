@@ -11,3 +11,5 @@ Dette er smart!
 
 
 supersmaaart 
+
+HAHAHAHAHHAHAHA 
